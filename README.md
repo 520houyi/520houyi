@@ -1,4 +1,4 @@
-## Welcome And Please Check Out My Projects!
+## Welcome And Please Check Out My Projects! （我也会说中文）
 
 ## A little curiosity, a lot of tabs open.
 
